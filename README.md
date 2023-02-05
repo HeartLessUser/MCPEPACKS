@@ -8,5 +8,5 @@ Before you realease any pack on the internet
 
 
 
-- discord: <3 HeartFully#8451
+- discord: <3 ox#9936
 Have a nice day!
